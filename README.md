@@ -1,4 +1,4 @@
-### Hi there:wave: 
+### Hi there :wave: 
 
 :technologist: This is **Huang Youliang**, you can also call me ButterBright.
 
@@ -10,4 +10,4 @@
 
 :telephone_receiver: Reach me: [Blog](https://butterbright.me) | [Email](mailto:butterbright0504@gmail.com) | [Twitter](https://twitter.com/Bright0504)
 
-Always open for a friendly chat. :stuck_out_tongue_winking_eye:
+Always open for a friendly chat :stuck_out_tongue_winking_eye:
